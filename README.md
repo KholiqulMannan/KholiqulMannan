@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @KholiqulMannan
-- 👀 I’m interested in football 
-- 🌱 I'm currently learning English 
-- 💞️ I'm looking to collaborate This site
+- 👀 I’m interested  
+- 🌱 I'm currently 
+- 💞️ I'm looking to 
 - 📫 How to reach me school work 
 - 😄 Prono: 
 - ⚡ Fun fact: ...
